@@ -17,7 +17,7 @@ Flipped Learning 기반의 자기주도형 그룹토의 프로그램,
 새로운 AI 혁신학교 AIFFEL을 완성시켜 나갈 코치(Coach)를 모시고자 합니다.
 
 
-### ▶ 지원서 작성 ➡➡  [[클릭](http://bit.ly/2FgqRTD)]
+### ▶ 지원서 작성 ➡➡  [[클릭](https://modulabs.typeform.com/to/PzOE5A)]
 
 
 <br>
@@ -60,4 +60,4 @@ Flipped Learning 기반의 자기주도형 그룹토의 프로그램,
  
  ---
 
-### ▶ 지원서 작성 ➡➡  [[클릭](http://bit.ly/2FgqRTD)]
+### ▶ 지원서 작성 ➡➡  [[클릭](https://modulabs.typeform.com/to/PzOE5A)]
